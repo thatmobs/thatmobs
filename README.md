@@ -4,6 +4,7 @@
 
 <p align="center"> not gonna make this look nice too lazy :p </p>
 <p align="center"> usually off tab, w2int </p>
+<p align="center"> im an adult dont be Weird abt me.. thx </p>
 ᲼ ᲼
 <p align="center"> always at anime area (op usually) </p>
 <p align="center"> mob x verity fans iwc </p>
